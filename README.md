@@ -1,1 +1,0 @@
-# start-t-trizor.github.io
